@@ -1,7 +1,7 @@
 ## THE SILLY YTDRAWS PEOPLE
 **Y**ou **T**rans? **D**amn... **R**ights, **AW**, **S**ex
 
-"stopping na**is one websocket connection at a time" or something idk :3
+"stopping na*is one websocket connection at a time" or something idk :3
 
 [https://meowguardon.top/](https://meowguardon.top/)
 
